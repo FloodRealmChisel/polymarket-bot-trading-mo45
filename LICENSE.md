@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Polymarket module with new Polymarket Module | stop-loss-management + decentralized-trading. Featuring stop-loss-management and decentralized-trading, it's the
 
 
 
